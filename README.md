@@ -1,3 +1,3 @@
 # DM1-portfolio
-What did the nosey pepper do?
-... He got jalapenio buisness
+What do nosey peppers do?
+... They get jalapenio buisness
